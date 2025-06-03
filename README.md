@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Sudha-myna
 - 👀 I’m interested in doing diffenent Software projects
-- 🌱 I’m currently learning personality development
+- 🌱 I’m currently learning handling life with different circumstances.
 - 💞️ I’m looking to collaborate on working with more honourable developers to gain more knowledge
 - 📫 How to reach me ... through linkdin,naukari,indeed patforms.
 - 😄 Pronouns: ...she,her
